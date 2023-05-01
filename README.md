@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Name: Tony Comas
+Pronous: He/Him
+I'm currently working on finishing Better Call Saul and am absolutely loving it. A fun fact about me is that I have two last names.
